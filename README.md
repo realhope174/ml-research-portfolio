@@ -1,4 +1,4 @@
-# ML Research Portfolio — Hope Kwadw!zo Dzamesi
+# ML Research Portfolio — Hope Kwadwzo Dzamesi
 
 Gdańsk, Poland | realityhope.dzamesi@gmail.com | [LinkedIn](https://www.linkedin.com/in/hope-dzamesi-710625b7)
 
